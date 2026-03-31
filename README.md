@@ -15,6 +15,8 @@ Whatever you do at the crossroads. Keep going forward.
 
 
 Or something like that
+
 (I was never really good at endings)
 
 
+![image](https://github.com/aevsria/d3rlord3/blob/6c8af6f716e2914428f50022a7bf5484c86f1eb5/IMG_1748.jpeg)
