@@ -1,4 +1,4 @@
-# d3rlord3, or derek's final goodbye.
+# d3rlord3, or derek hutchins's final goodbye.
 
 
 You know it’s weird writing a final letter. Almost as if I have to come to terms with… whatever this is. Which is something i find quite displeasurable. But here I am. Why did I even record all this? I don’t know. Well I do know. I just don’t want to be forgotten. My head hurts like hell. I can feel myself slipping as we become one. And my mind becomes a prison. What a true shame it is. All the knowledge in the world and no way to use it. That’s how it should be I suppose.
